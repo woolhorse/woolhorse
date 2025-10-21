@@ -1,1 +1,1 @@
-![Welcome to my profile!](./Frame_2147225954.png)
+![Welcome to my profile!](./Frame2147225954.png)
