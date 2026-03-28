@@ -1,1 +1,1 @@
-![Welcome to my profile!](./Slide 16_9 - 667.png)
+![Welcome to my profile!](./Slide16_9-667.png)
